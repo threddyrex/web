@@ -2,7 +2,7 @@
 
 This is home base for Threddy the T. rex!
 
-If you are looking for the list of comics you can find them here: [COMICS.MD](COMICS.MD)
+If you are looking for the list of comics you can find them here: [COMICS](COMICS)
 
 You can find me on the web in various places:
 
