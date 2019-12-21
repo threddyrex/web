@@ -59,56 +59,56 @@ Here's the big list of comics.
 55. 6/23/2019 – Cars Ride – [Twitter](https://twitter.com/ThreddyRex/status/1143004311619719168) - 27
 56. 6/24/2019 – Bunk Desks – [Twitter](https://twitter.com/ThreddyRex/status/1143240290100056064) - 58
 57. 6/25/2019 – Career Discussions – [Twitter](https://twitter.com/ThreddyRex/status/1143629255319773184) - 80
-58. 6/26/2019 – Buried In Email – Twitter - 33
-59. 6/27/2019 – Eating Better – Twitter - 21
-60. 7/1/2019 – Mobile Trash – Twitter - 14
-61. 7/2/2019 – Mural – Twitter - 25
-62. 7/12/2019 – Seattle Earthquake – Twitter - 45
-63. 7/13/2019 – Thomas the Tank Engine – Twitter - 22
-64. 7/18/2019 – Seattle Summer – Twitter - 26
-65. 7/19/2019 – New Blepster Web Site – Twitter - 34
-66. 7/23/2019 – Smizing – Twitter - 36
-67. 7/25/2019 – Blep Live Stream – Twitter - 24
-68. 7/29/2019 – Blepster Outage – Twitter - 75
-69. 7/30/2019 – Passport Photo – Twitter - 21
-70. 8/1/2019 – SBC Released – Twitter - 31
-71. 8/2/2019 – It’s August Already – Twitter - 31
-72. 8/5/2019 – Octopus Art – Twitter - 11
-73. 8/6/2019 – Bicycle Parking – Twitter - 15
-74. 8/7/2019 – Renaissance Faire Party – Twitter - 11
-75. 8/8/2019 – Now’s a good time to change jobs – Twitter - 33
-76. 8/12/2019 – Forgetting your badge – Twitter - 34
-77. 8/13/2019 – Why wasn’t I invited to your meeting – Twitter - 41
-78. 8/14/2019 – Strongly-worded email – Twitter - 31
-79. 8/15/2019 – Vending machine – Twitter - 35
-80. 8/16/2019 – Freddie conf room rename – Twitter - 27
-81. 8/19/2019 – The interns are leaving – Twitter - 38
-82. 8/20/2019 – Moving furniture – Twitter - 112
-83. 8/21/2019 – Open office research – Twitter - 60
-84. 8/22/2019 – Intern demos – Twitter - 19
-85. 8/23/2019 – Annual picnic – Twitter - 20
-86. 8/28/2019 – Annual bonus Freddy mug – Twitter - 35
-87. 8/29/2019 – Forgetting to eat lunch – Twitter - 50
-88. 9/1/2019 – Company holiday – Twitter - 44
-89. 9/3/2019 – Pumpkin Spice Threddy – Twitter - 45
-90. 9/5/2019 – Noise-canceling headphones – Twitter - 70
-91. 9/6/2019 – I rode a scooter – Twitter - 47
-92. 9/9/2019 – BlepPay – Twitter - 24
-93. 9/10/2019 – Removing the towels – Twitter - 26
-94. 9/29/2019 – Social media engagement – Twitter - 34
-95. 9/30/2019 – Swagmins – Twitter - 47
-96. 10/7/2019 – Stop interrupting – Twitter - 19
-97. 10/8/2019 – Supreme Court case – Twitter - 20
-98. 10/9/2019 – I love the leaves – Twitter - 42
-99. 10/10/2019 – DinosaurLand – Twitter - 20
-100. 10/18/2019 – Quick Meeting – Twitter - 65
-101. 10/21/2019 – Conference talk planning – Twitter - 44
-102. 11/12/2019 – Disoriented after the conference – Twitter - 119
-103. 11/13/2019 – My first talk – Twitter - 91
-104. 11/20/2019 – Email SLA – Twitter - 147
-105. 11/26/2019 – Vacation Mode – Twitter - 52
-106. 11/27/2019 - Working from home - Twitter - 81
-107. 12/3/2019 - Morale event on campus - Twitter - 23
-108. 12/4/2019 - New open office space - Twitter - 488
-109. 12/9/2019 - Mondays - Twitter - 42
-110. 12/10/2019 - In the bin - Twitter - 23
+58. 6/26/2019 – Buried In Email – [Twitter](https://twitter.com/ThreddyRex/status/1144001442329448448) - 33
+59. 6/27/2019 – Eating Better – [Twitter](https://twitter.com/ThreddyRex/status/1144331534700204032) - 21
+60. 7/1/2019 – Mobile Trash – [Twitter](https://twitter.com/ThreddyRex/status/1145768618468073476) - 14
+61. 7/2/2019 – Mural – [Twitter](https://twitter.com/ThreddyRex/status/1146139594057928704?s=21) - 25
+62. 7/12/2019 – Seattle Earthquake – [Twitter](https://twitter.com/ThreddyRex/status/1149784406711648256) - 45
+63. 7/13/2019 – Thomas the Tank Engine – [Twitter](https://twitter.com/ThreddyRex/status/1150131270065643520) - 22
+64. 7/18/2019 – Seattle Summer – [Twitter](https://twitter.com/ThreddyRex/status/1151955948828647424?s=21) - 26
+65. 7/19/2019 – New Blepster Web Site – [Twitter](https://twitter.com/ThreddyRex/status/1152300659921674240) - 34
+66. 7/23/2019 – Smizing – [Twitter](https://twitter.com/ThreddyRex/status/1153769229750923264) - 36
+67. 7/25/2019 – Blep Live Stream – [Twitter](https://twitter.com/ThreddyRex/status/1154489358956650496) - 24
+68. 7/29/2019 – Blepster Outage – [Twitter](https://twitter.com/ThreddyRex/status/1155915063221506048) - 75
+69. 7/30/2019 – Passport Photo – [Twitter](https://twitter.com/ThreddyRex/status/1156293937851588608) - 21
+70. 8/1/2019 – SBC Released – [Twitter](https://twitter.com/ThreddyRex/status/1157022319396577280) - 31
+71. 8/2/2019 – It’s August Already – [Twitter](https://twitter.com/ThreddyRex/status/1157431326032531456) - 31
+72. 8/5/2019 – Octopus Art – [Twitter](https://twitter.com/ThreddyRex/status/1158492486802690048) - 11
+73. 8/6/2019 – Bicycle Parking – [Twitter](https://twitter.com/ThreddyRex/status/1158835414788009985) - 15
+74. 8/7/2019 – Renaissance Faire Party – [Twitter](https://twitter.com/ThreddyRex/status/1159192674189975554) - 11
+75. 8/8/2019 – Now’s a good time to change jobs – [Twitter](https://twitter.com/ThreddyRex/status/1159547875639975937) - 33
+76. 8/12/2019 – Forgetting your badge – [Twitter](https://twitter.com/ThreddyRex/status/1161012310149742592) - 34
+77. 8/13/2019 – Why wasn’t I invited to your meeting – [Twitter](https://twitter.com/ThreddyRex/status/1161367073567592448) - 41
+78. 8/14/2019 – Strongly-worded email – [Twitter](https://twitter.com/ThreddyRex/status/1161729693067993088) - 31
+79. 8/15/2019 – Vending machine – [Twitter](https://twitter.com/ThreddyRex/status/1162083262887448576) - 35
+80. 8/16/2019 – Freddie conf room rename – [Twitter](https://twitter.com/ThreddyRex/status/1162466356370870272) - 27
+81. 8/19/2019 – The interns are leaving – [Twitter](https://twitter.com/ThreddyRex/status/1163533165702475776) - 38
+82. 8/20/2019 – Moving furniture – [Twitter](https://twitter.com/ThreddyRex/status/1163935096035897344) - 112
+83. 8/21/2019 – Open office research – [Twitter](https://twitter.com/ThreddyRex/status/1164296583661252608) - 60
+84. 8/22/2019 – Intern demos – [Twitter](https://twitter.com/ThreddyRex/status/1164612989443424256) - 19
+85. 8/23/2019 – Annual picnic – [Twitter](https://twitter.com/ThreddyRex/status/1165003347759263744) - 20
+86. 8/28/2019 – Annual bonus Freddy mug – [Twitter](https://twitter.com/ThreddyRex/status/1166785305526988801) - 35
+87. 8/29/2019 – Forgetting to eat lunch – [Twitter](https://twitter.com/ThreddyRex/status/1167186981412986880) - 50
+88. 9/1/2019 – Company holiday – [Twitter](https://twitter.com/ThreddyRex/status/1168277855370797056) - 44
+89. 9/3/2019 – Pumpkin Spice Threddy – [Twitter](https://twitter.com/ThreddyRex/status/1169006823602642946) - 45
+90. 9/5/2019 – Noise-canceling headphones – [Twitter](https://twitter.com/ThreddyRex/status/1169717774236540928) - 70
+91. 9/6/2019 – I rode a scooter – [Twitter](https://twitter.com/ThreddyRex/status/1170088808479506432) - 47
+92. 9/9/2019 – BlepPay – [Twitter](https://twitter.com/ThreddyRex/status/1171182201653739520) - 24
+93. 9/10/2019 – Removing the towels – [Twitter](https://twitter.com/ThreddyRex/status/1171526376668594177) - 26
+94. 9/29/2019 – Social media engagement – [Twitter](https://twitter.com/ThreddyRex/status/1178438554562641920) - 34
+95. 9/30/2019 – Swagmins – [Twitter](https://twitter.com/ThreddyRex/status/1178742057050853376) - 47
+96. 10/7/2019 – Stop interrupting – [Twitter](https://twitter.com/ThreddyRex/status/1181369073487101952) - 19
+97. 10/8/2019 – Supreme Court case – [Twitter](https://twitter.com/ThreddyRex/status/1181650045751320576) - 20
+98. 10/9/2019 – I love the leaves – [Twitter](https://twitter.com/ThreddyRex/status/1182033917437591553) - 42
+99. 10/10/2019 – DinosaurLand – [Twitter](https://twitter.com/ThreddyRex/status/1182381996946780160) - 20
+100. 10/18/2019 – Quick Meeting – [Twitter](https://twitter.com/ThreddyRex/status/1185440705621049344) - 65
+101. 10/21/2019 – Conference talk planning – [Twitter](https://twitter.com/ThreddyRex/status/1186345587228233729) - 44
+102. 11/12/2019 – Disoriented after the conference – [Twitter](https://twitter.com/ThreddyRex/status/1194342135446687744) - 119
+103. 11/13/2019 – My first talk – [Twitter](https://twitter.com/ThreddyRex/status/1194760162092838912) - 91
+104. 11/20/2019 – Email SLA – [Twitter](https://twitter.com/ThreddyRex/status/1197281458911498246) - 147
+105. 11/26/2019 – Vacation Mode – [Twitter](https://twitter.com/ThreddyRex/status/1199402059348369408) - 52
+106. 11/27/2019 - Working from home - [Twitter](https://twitter.com/threddyrex/status/1199755390574977024) - 81
+107. 12/3/2019 - Morale event on campus - [Twitter](https://twitter.com/threddyrex/status/1201988366931116032) - 23
+108. 12/4/2019 - New open office space - [Twitter](https://twitter.com/threddyrex/status/1202308224344420352) - 488
+109. 12/9/2019 - Mondays - [Twitter](https://twitter.com/threddyrex/status/1204104264953393152) - 42
+110. 12/10/2019 - In the bin - [Twitter](https://twitter.com/threddyrex/status/1204640490651439105?s=20) - 23
