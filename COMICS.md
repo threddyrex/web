@@ -2,7 +2,7 @@
 
 Here's the big list of comics.
 
-1. 2/19/2018 – I’m Freddy – Twitter - 15
+1. 2/19/2018 – I’m Freddy – [Twitter](https://twitter.com/threddyrex/status/965620244457779201) - 15
 2. 9/01/2018 – Tented – Twitter - 65
 3. 1/22/2019 – Make It Rain – Twitter - 46
 4. 1/23/2019 – I Don’t Recognize Myself – Twitter - 38
