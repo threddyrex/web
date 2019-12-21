@@ -2,6 +2,8 @@
 
 This is home base for Threddy the T. rex!
 
+If you are looking for the list of comics you can find them here: [COMICS.MD](COMICS.MD)
+
 You can find me on the web in various places:
 
 * [Twitter](https://twitter.com/threddyrex) - this is the main place I hang out
