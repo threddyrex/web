@@ -12,53 +12,53 @@ Here's the big list of comics.
 8. 1/30/2019 – My People Will Be In Touch – [Twitter](https://twitter.com/ThreddyRex/status/1090684994299645953) - 33
 9. 2/1/2019 – Pancake Lunch – [Twitter](https://twitter.com/ThreddyRex/status/1091365314648928256) - 28
 10. 2/4/2019 – Trash Pancakes – [Twitter](https://twitter.com/ThreddyRex/status/1092509765983395840) - 35
-11. 2/4/2019 – I Love Snow – Twitter - 74
-12. 2/6/2019 – Peanuts – Twitter - 53
-13. 2/8/2019 – Bare Store Shelves – Twitter - 28
-14. 2/8/2019 – Submit a Conference Talk – Twitter - 56
-15. 2/11/2019 – Snow Sledding – Twitter - 32
-16. 2/12/2019 – No Garbage Collection – Twitter - 21
-17. 2/15/2019 – Do You Hear Something – Twitter - 30
-18. 2/15/2019 – Walls Don’t Work – Twitter - 30
-19. 2/20/2019 – Disneyland Paint the Night – Twitter - 22
-20. 3/5/2019 – Blue Badge – Twitter - 40
-21. 3/8/2019 – Construction – Twitter - 27
-22. 3/13/2019 – Can of Worms – Twitter - 27
-23. 3/14/2019 – Mealtball – Twitter - 10
-24. 3/15/2019 – Take My Poll – Twitter - 88
-25. 3/18/2019 – Redacted – Twitter - 50
-26. 4/2/2019 – Blepster Poll Results – Twitter - 24
-27. 4/4/2019 – Trash Cans Are Safer – Twitter - 51
-28. 4/8/2019 – New Version of Blepster – Twitter - 41
-29. 4/9/2019 – Team Player – Twitter - 48
-30. 4/10/2019 – Blepster MAU – Twitter - 33
-31. 4/11/2019 – Management Training – Twitter - 367
-32. 4/15/2019 – Freddy Becomes VP – Twitter - 34
-33. 4/16/2019 – Portable Laptop Holder – Twitter - 35
-34. 4/17/2019 – Stinky Lunch – Twitter - 43
-35. 4/18/2019 – Open Office Poll – Twitter - 114
-36. 4/19/2019 – Excited About SBC – Twitter - 55
-37. 4/30/2019 – Developer Conferences – Twitter - 50
-38. 4/30/2019 – PAC – Twitter - 86
-39. 5/6/2019 – Hostile Meetings – Twitter - 27
-40. 5/14/2019 – I Don’t Like Your Charts – Twitter - 305
-41. 5/17/2019 – Pancake Delivery – Twitter - 24
-42. 5/21/2019 – Starting a Podcast – Twitter - 46
-43. 5/22/2019 – Trash Water – Twitter - 36
-44. 5/23/2019 – Almost the Weekend – Twitter - 57
-45. 5/28/2019 – Blepster Influencer – Twitter - 40
-46. 6/8/2019 – No Work Email On Phone – Twitter - 83
-47. 6/10/2019 – Blepster Snippets – Twitter - 15
-48. 6/10/2019 – Engaged Users – Twitter - 30
-49. 6/11/2019 – Take the Stairs – Twitter - 17
-50. 6/12/2019 – Trash Sign – Twitter - 18
-51. 6/13/2019 – Visitor’s Center – Twitter - 15
-52. 6/14/2019 – Vacation – Twitter - 42
-53. 6/17/2019 – Dumbo – Twitter - 31
-54. 6/23/2019 – Don’t Make Me Go Back – Twitter - 17
-55. 6/23/2019 – Cars Ride – Twitter - 27
-56. 6/24/2019 – Bunk Desks – Twitter - 58
-57. 6/25/2019 – Career Discussions – Twitter - 80
+11. 2/4/2019 – I Love Snow – [Twitter](https://twitter.com/ThreddyRex/status/1092551907451723777) - 74
+12. 2/6/2019 – Peanuts – [Twitter](https://twitter.com/ThreddyRex/status/1093217527113474048) - 53
+13. 2/8/2019 – Bare Store Shelves – [Twitter](https://twitter.com/ThreddyRex/status/1093952195626561537) - 28
+14. 2/8/2019 – Submit a Conference Talk – [Twitter](https://twitter.com/ThreddyRex/status/1093989765911785472) - 56
+15. 2/11/2019 – Snow Sledding – [Twitter](https://twitter.com/ThreddyRex/status/1095121602419732481) - 32
+16. 2/12/2019 – No Garbage Collection – [Twitter](https://twitter.com/ThreddyRex/status/1095454477035814913) - 21
+17. 2/15/2019 – Do You Hear Something – [Twitter](https://twitter.com/ThreddyRex/status/1096649897325907968) - 30
+18. 2/15/2019 – Walls Don’t Work – [Twitter](https://twitter.com/ThreddyRex/status/1096676137483218944) - 30
+19. 2/20/2019 – Disneyland Paint the Night – [Twitter](https://twitter.com/ThreddyRex/status/1098441125591887872) - 22
+20. 3/5/2019 – Blue Badge – [Twitter](https://twitter.com/ThreddyRex/status/1103069848299483136) - 40
+21. 3/8/2019 – Construction – [Twitter](https://twitter.com/ThreddyRex/status/1104125208049283073) - 27
+22. 3/13/2019 – Can of Worms – [Twitter](https://twitter.com/ThreddyRex/status/1105980057791557632) - 27
+23. 3/14/2019 – Mealtball – [Twitter](https://twitter.com/ThreddyRex/status/1106114158250979329) - 10
+24. 3/15/2019 – Take My Poll – [Twitter](https://twitter.com/ThreddyRex/status/1106621838275178496) - 88
+25. 3/18/2019 – Redacted – [Twitter](https://twitter.com/ThreddyRex/status/1107773750399795200) - 50
+26. 4/2/2019 – Blepster Poll Results – [Twitter](https://twitter.com/ThreddyRex/status/1113170217989885952) - 24
+27. 4/4/2019 – Trash Cans Are Safer – [Twitter](https://twitter.com/ThreddyRex/status/1113895271971213312) - 51
+28. 4/8/2019 – New Version of Blepster – [Twitter](https://twitter.com/ThreddyRex/status/1115385352846319616) - 41
+29. 4/9/2019 – Team Player – [Twitter](https://twitter.com/ThreddyRex/status/1115720639111806977) - 48
+30. 4/10/2019 – Blepster MAU – [Twitter](https://twitter.com/ThreddyRex/status/1116092334041473024) - 33
+31. 4/11/2019 – Management Training – [Twitter](https://twitter.com/ThreddyRex/status/1116438916687519744) - 367
+32. 4/15/2019 – Freddy Becomes VP – [Twitter](https://twitter.com/ThreddyRex/status/1117911421595947009) - 34
+33. 4/16/2019 – Portable Laptop Holder – [Twitter](https://twitter.com/ThreddyRex/status/1118209395328839680) - 35
+34. 4/17/2019 – Stinky Lunch – [Twitter](https://twitter.com/ThreddyRex/status/1118612778590195712) - 43
+35. 4/18/2019 – Open Office Poll – [Twitter](https://twitter.com/ThreddyRex/status/1118968606895693824) - 114
+36. 4/19/2019 – Excited About SBC – [Twitter](https://twitter.com/ThreddyRex/status/1119333391671775232) - 55
+37. 4/30/2019 – Developer Conferences – [Twitter](https://twitter.com/ThreddyRex/status/1123338704272052224) - 50
+38. 4/30/2019 – PAC – [Twitter](https://twitter.com/ThreddyRex/status/1123451425990815745) - 86
+39. 5/6/2019 – Hostile Meetings – [Twitter](https://twitter.com/ThreddyRex/status/1125477103921537024) - 27
+40. 5/14/2019 – I Don’t Like Your Charts – [Twitter](https://twitter.com/ThreddyRex/status/1128393271049252865) - 305
+41. 5/17/2019 – Pancake Delivery – [Twitter](https://twitter.com/ThreddyRex/status/1129520657635586048) - 24
+42. 5/21/2019 – Starting a Podcast – [Twitter](https://twitter.com/ThreddyRex/status/1130891057774833665) - 46
+43. 5/22/2019 – Trash Water – [Twitter](https://twitter.com/ThreddyRex/status/1131282958789124096) - 36
+44. 5/23/2019 – Almost the Weekend – [Twitter](https://twitter.com/ThreddyRex/status/1131681873006981120) - 57
+45. 5/28/2019 – Blepster Influencer – [Twitter](https://twitter.com/ThreddyRex/status/1133444095144210433) - 40
+46. 6/8/2019 – No Work Email On Phone – [Twitter](https://twitter.com/ThreddyRex/status/1137500117563351040) - 83
+47. 6/10/2019 – Blepster Snippets – [Twitter](https://twitter.com/ThreddyRex/status/1138145400945238016) - 15
+48. 6/10/2019 – Engaged Users – [Twitter](https://twitter.com/ThreddyRex/status/1138199054213509120) - 30
+49. 6/11/2019 – Take the Stairs – [Twitter](https://twitter.com/ThreddyRex/status/1138510903685423104) - 17
+50. 6/12/2019 – Trash Sign – [Twitter](https://twitter.com/ThreddyRex/status/1138913380389908480) - 18
+51. 6/13/2019 – Visitor’s Center – [Twitter](https://twitter.com/ThreddyRex/status/1139261062602039296) - 15
+52. 6/14/2019 – Vacation – [Twitter](https://twitter.com/ThreddyRex/status/1139680502477025281) - 42
+53. 6/17/2019 – Dumbo – [Twitter](https://twitter.com/ThreddyRex/status/1140708200116658177) - 31
+54. 6/23/2019 – Don’t Make Me Go Back – [Twitter](https://twitter.com/ThreddyRex/status/1142973770182774784) - 17
+55. 6/23/2019 – Cars Ride – [Twitter](https://twitter.com/ThreddyRex/status/1143004311619719168) - 27
+56. 6/24/2019 – Bunk Desks – [Twitter](https://twitter.com/ThreddyRex/status/1143240290100056064) - 58
+57. 6/25/2019 – Career Discussions – [Twitter](https://twitter.com/ThreddyRex/status/1143629255319773184) - 80
 58. 6/26/2019 – Buried In Email – Twitter - 33
 59. 6/27/2019 – Eating Better – Twitter - 21
 60. 7/1/2019 – Mobile Trash – Twitter - 14
