@@ -3,15 +3,15 @@
 Here's the big list of comics.
 
 1. 2/19/2018 – I’m Freddy – [Twitter](https://twitter.com/threddyrex/status/965620244457779201) - 15
-2. 9/01/2018 – Tented – Twitter - 65
-3. 1/22/2019 – Make It Rain – Twitter - 46
-4. 1/23/2019 – I Don’t Recognize Myself – Twitter - 38
-5. 1/24/2019 – Freddy’s Interview Begins – Twitter - 49
-6. 1/25/2019 – Trash Conference Room – Twitter - 34
-7. 1/28/2019 – Blepster – Twitter - 60
-8. 1/30/2019 – My People Will Be In Touch – Twitter - 33
-9. 2/1/2019 – Pancake Lunch – Twitter - 28
-10. 2/4/2019 – Trash Pancakes – Twitter - 35
+2. 9/01/2018 – Tented – [Twitter](https://twitter.com/ThreddyRex/status/1035986359800889344) - 65
+3. 1/22/2019 – Make It Rain – [Twitter](https://twitter.com/ThreddyRex/status/1087782553413595137) - 46
+4. 1/23/2019 – I Don’t Recognize Myself – [Twitter](https://twitter.com/ThreddyRex/status/1088146593281261568) - 38
+5. 1/24/2019 – Freddy’s Interview Begins – [Twitter](https://twitter.com/ThreddyRex/status/1088508963778265088) - 49
+6. 1/25/2019 – Trash Conference Room – [Twitter](https://twitter.com/ThreddyRex/status/1088871075499241472) - 34
+7. 1/28/2019 – Blepster – [Twitter](https://twitter.com/ThreddyRex/status/1089959680741232640) - 60
+8. 1/30/2019 – My People Will Be In Touch – [Twitter](https://twitter.com/ThreddyRex/status/1090684994299645953) - 33
+9. 2/1/2019 – Pancake Lunch – [Twitter](https://twitter.com/ThreddyRex/status/1091365314648928256) - 28
+10. 2/4/2019 – Trash Pancakes – [Twitter](https://twitter.com/ThreddyRex/status/1092509765983395840) - 35
 11. 2/4/2019 – I Love Snow – Twitter - 74
 12. 2/6/2019 – Peanuts – Twitter - 53
 13. 2/8/2019 – Bare Store Shelves – Twitter - 28
