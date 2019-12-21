@@ -1,4 +1,4 @@
-# web
+# Threddy the T. rex 🦖
 
 This is home base for Threddy the T. rex!
 
