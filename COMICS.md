@@ -112,3 +112,4 @@ Here's the big list of comics.
 108. 12/4/2019 - **New open office space** - [Twitter](https://twitter.com/threddyrex/status/1202308224344420352)
 109. 12/9/2019 - Mondays - [Twitter](https://twitter.com/threddyrex/status/1204104264953393152)
 110. 12/10/2019 - In the bin - [Twitter](https://twitter.com/threddyrex/status/1204640490651439105?s=20)
+111. 12/24/2019 - Xmas is tomorrow - [Twitter](https://twitter.com/threddyrex/status/1209568869553074176?s=20)
