@@ -1,6 +1,6 @@
 # Threddy the T. rex 🦖
 
-This is home base for Threddy the T. rex!
+Welcome to my web site! I make comics, gifs, and other fun stuff.
 
 If you are looking for the list of comics you can find them here: [COMICS.md](COMICS.md)
 
