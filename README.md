@@ -7,7 +7,7 @@ If you are looking for the list of comics you can find them here: [comics_list.m
 You can also find me on the web in various places:
 
 * [Twitter](https://twitter.com/threddyrex) - this is the main place I hang out
-* [Instagram](https://www.instagram.com/threddyrex/) - I post the comics here
+* [Reddit](https://www.reddit.com/user/threddyrex) - in 2020 I plan to spend some time here
 * [Redbubble](https://www.redbubble.com/people/threddythetrex/?asc=u) - merch! (t-shirts and stickers)
 * [Etsy](https://www.etsy.com/shop/ThreddyRex) - more merch! (polo shirts and baseball caps)
 * [Giphy](https://giphy.com/threddyrex) - you can use my gifs in Outlook, Teams, Twitter, etc
