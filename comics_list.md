@@ -113,3 +113,4 @@ Here's the big list of comics.
 109. 12/9/2019 - Mondays - [Twitter](https://twitter.com/threddyrex/status/1204104264953393152)
 110. 12/10/2019 - In the bin - [Twitter](https://twitter.com/threddyrex/status/1204640490651439105?s=20)
 111. 12/24/2019 - Xmas is tomorrow - [Twitter](https://twitter.com/threddyrex/status/1209568869553074176?s=20)
+112. 1/6/2020 - Forgot my password - [Twitter](https://twitter.com/threddyrex/status/1214259213213433856?s=20)
