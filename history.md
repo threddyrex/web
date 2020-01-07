@@ -32,6 +32,7 @@
 * 3/20/2019 - Publishing gifs on Giphy - [Twitter](https://twitter.com/ThreddyTheTrex/status/1108379685958746112)
 * 4/2/2019 - Freddy pin - [Twitter](https://twitter.com/threddyrex/status/1113138820243832834)
 * 4/21/2019 - Standards of Business Conduct - [Twitter](https://twitter.com/ThreddyTheTrex/status/1119993875102175232)
+* 7/31/2019 - SBC goes live - [Twitter](https://twitter.com/threddyrex/status/1156641336952442880?s=20)
 * 8/24/2019 - Dinosaur on trampoline - [Twitter](https://twitter.com/threddyrex/status/1165396068852322304)
 * 10/10/2019 - Jargon jar - [Twitter](https://twitter.com/threddyrex/status/1182461643554377729?s=20)
 * 10/15/2019 - Burke museum opens - [Twitter](https://twitter.com/threddyrex/status/1184214507851112448?s=20)
