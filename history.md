@@ -65,4 +65,5 @@
 ## 2020
 
 * 1/6/2020 - Book which contains Ned's tweets along with some Threddy art - [Twitter](https://twitter.com/threddyrex/status/1214411177217773568?s=20)
+* 1/7/2020 - The new pins have arrived - [Twitter](https://twitter.com/threddyrex/status/1214640565247070210?s=20)
 
