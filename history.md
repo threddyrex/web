@@ -1,12 +1,22 @@
 # Threddy History
 
+## 2016
+
 * 5/24/2016 - Twitter changes how usernames are counted - [Twitter](https://twitter.com/Twitter/status/735108260718469121)
+
+
+## 2017
+
 * 8/17/2017 - Threddy is born - [Twitter](https://twitter.com/ThreddyTheTrex/status/898653723282558976)
 * 8/22/2017 - First gif - [Twitter](https://twitter.com/ThreddyTheTrex/status/899806996769067008)
 * 9/20/2017 - Cyber and Roadie are born - [Twitter](https://twitter.com/ThreddyTheTrex/status/910552150584918016)
 * 9/26/2017 - Cyber starts his road trip - [Twitter](https://twitter.com/CarmenCrincoli/status/912679199000772609)
 * 9/29/2017 - Stickers announced - [Twitter](https://twitter.com/ThreddyTheTrex/status/913895196227624960)
 * 10/28/2017 - Buying dinosaurs to paint at home - [Twitter](https://twitter.com/ThreddyTheTrex/status/924403798126108672)
+
+
+## 2018
+
 * 1/27/2018 - Making gifs with 2D Threddy - [Twitter](https://twitter.com/ThreddyTheTrex/status/957353765899653120)
 * 2/19/2018 - Freddy Raccoon makes an appearance - [Twitter](https://twitter.com/ThreddyTheTrex/status/965620244457779201)
 * 3/7/2018 - First kinda-viral tweet - [Twitter](https://twitter.com/ThreddyTheTrex/status/971262411188645888)
@@ -25,6 +35,10 @@
 * 10/19/2018 - Lean into it - [Twitter](https://twitter.com/ThreddyTheTrex/status/1053419260356157440)
 * 11/8/2018 - Queery and Threddy at LGBTQ meetup - [Twitter](https://twitter.com/QueeryTSQLRex/status/1060745492869476352)
 * 12/5/2018 - Tealzilla begins the MS Ignite tour - [Twitter](https://twitter.com/tealzilla/status/1070576653611528192)
+
+
+## 2019
+
 * 1/10/2019 - Enamel pins - [Twitter](https://twitter.com/ThreddyTheTrex/status/1083555160352219138)
 * 1/22/2019 - The webcomic appears - [Twitter](https://twitter.com/ThreddyTheTrex/status/1087782553413595137)
 * 2/9/2019 - Freddy's account - [Twitter](https://twitter.com/FreddyRaccoon/status/1094461238665342977)
@@ -46,4 +60,9 @@
 * 11/11/2019 - MSIgnite trip report cover photo - [Twitter](https://twitter.com/threddyrex/status/1193970525665546241?s=20)
 * 12/5/2019 - New pin design for 2020 - [Twitter](https://twitter.com/threddyrex/status/1202736045319577601?s=20)
 * 12/12/2019 - Top 10 Threddy comics of 2019 - [Twitter](https://twitter.com/threddyrex/status/1205214675597549568?s=20)
+
+
+## 2020
+
+* 1/6/2020 - Book which contains Ned's tweets along with some Threddy art - [Twitter](https://twitter.com/threddyrex/status/1214411177217773568?s=20)
 
