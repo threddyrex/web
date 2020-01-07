@@ -2,7 +2,10 @@
 
 Welcome to my web site! I make comics, gifs, and other fun stuff.
 
-If you are looking for the list of comics you can find them here: [comics_list.md](comics_list.md)
+Pages on this site:
+
+* [comics_list.md](comics_list.md) - the list of Threddy comics with links to Twitter
+* [history.md](history.md) - a history of Threddy
 
 You can also find me on the web in various places:
 
