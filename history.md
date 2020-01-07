@@ -7,7 +7,6 @@
 * 9/26/2017 - Cyber starts his road trip - [Twitter](https://twitter.com/CarmenCrincoli/status/912679199000772609)
 * 9/29/2017 - Stickers announced - [Twitter](https://twitter.com/ThreddyTheTrex/status/913895196227624960)
 * 10/28/2017 - Buying dinosaurs to paint at home - [Twitter](https://twitter.com/ThreddyTheTrex/status/924403798126108672)
-* 1/10/2018 - 2D Threddy is born - [Twitter](https://twitter.com/ThreddyTheTrex/status/950999360011091968)
 * 1/27/2018 - Making gifs with 2D Threddy - [Twitter](https://twitter.com/ThreddyTheTrex/status/957353765899653120)
 * 2/19/2018 - Freddy Raccoon makes an appearance - [Twitter](https://twitter.com/ThreddyTheTrex/status/965620244457779201)
 * 3/7/2018 - First kinda-viral tweet - [Twitter](https://twitter.com/ThreddyTheTrex/status/971262411188645888)
