@@ -42,4 +42,5 @@
 * 11/8/2019 - MSIgnite Windows Insider roundup - [Twitter](https://twitter.com/windowsinsider/status/1192922371637645312?s=20)
 * 11/8/2019 - MSIgnite group pic at Universal Hogwarts - [Twitter](https://twitter.com/threddyrex/status/1192801663008092161?s=20)
 * 11/11/2019 - MSIgnite trip report cover photo - [Twitter](https://twitter.com/threddyrex/status/1193970525665546241?s=20)
+* 12/5/2019 - New pin design for 2020 - [Twitter](https://twitter.com/threddyrex/status/1202736045319577601?s=20)
 
