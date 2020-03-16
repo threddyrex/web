@@ -119,3 +119,4 @@ Here's the big list of comics.
 115. 1/22/2020 - Seattle in January - [Twitter](https://twitter.com/threddyrex/status/1220054118091223040?s=20)
 116. 1/23/2020 - Huge milestone - [Twitter](https://twitter.com/threddyrex/status/1220433849274060800?s=20)
 117. 3/14/2020 - Toilet Paper - [Twitter](https://twitter.com/threddyrex/status/1238985544807284737?s=20)
+118. 3/16/2020 - Teams Custom Background - [Twitter](https://twitter.com/threddyrex/status/1239673214285918210?s=20)
