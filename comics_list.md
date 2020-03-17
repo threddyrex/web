@@ -120,3 +120,5 @@ Here's the big list of comics.
 116. 1/23/2020 - Huge milestone - [Twitter](https://twitter.com/threddyrex/status/1220433849274060800?s=20)
 117. 3/14/2020 - Toilet Paper - [Twitter](https://twitter.com/threddyrex/status/1238985544807284737?s=20)
 118. 3/16/2020 - Teams Custom Background - [Twitter](https://twitter.com/threddyrex/status/1239673214285918210?s=20)
+119. 3/17/2020 - Adjusting to WFH - [Twitter](https://twitter.com/threddyrex/status/1240020684752834560?s=20)
+
