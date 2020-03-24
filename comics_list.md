@@ -121,4 +121,5 @@ Here's the big list of comics.
 117. 3/14/2020 - Toilet Paper - [Twitter](https://twitter.com/threddyrex/status/1238985544807284737?s=20)
 118. 3/16/2020 - Teams Custom Background - [Twitter](https://twitter.com/threddyrex/status/1239673214285918210?s=20)
 119. 3/17/2020 - Adjusting to WFH - [Twitter](https://twitter.com/threddyrex/status/1240020684752834560?s=20)
-
+120. 3/22/2020 - Let's go hiking - [Twitter](https://twitter.com/threddyrex/status/1241794342743724034?s=20)
+121. 3/24/2020 - Happy Friday! - [Twitter](https://twitter.com/threddyrex/status/1242527113694998529?s=20)
