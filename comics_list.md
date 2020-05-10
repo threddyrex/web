@@ -123,3 +123,4 @@ Here's the big list of comics.
 119. 3/17/2020 - Adjusting to WFH - [Twitter](https://twitter.com/threddyrex/status/1240020684752834560?s=20)
 120. 3/22/2020 - Let's go hiking - [Twitter](https://twitter.com/threddyrex/status/1241794342743724034?s=20)
 121. 3/24/2020 - Happy Friday! - [Twitter](https://twitter.com/threddyrex/status/1242527113694998529?s=20)
+122. 5/9/2020 - Government Contract - [Twitter](https://twitter.com/threddyrex/status/1259347514932617216?s=20)
