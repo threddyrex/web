@@ -125,3 +125,4 @@ Here's the big list of comics.
 121. 3/24/2020 - Happy Friday! - [Twitter](https://twitter.com/threddyrex/status/1242527113694998529?s=20)
 122. 5/9/2020 - Government Contract - [Twitter](https://twitter.com/threddyrex/status/1259347514932617216?s=20)
 123. 5/11/2020 - More Trash Cans - [Twitter](https://twitter.com/threddyrex/status/1259879234362720257?s=20)
+124. 5/11/2020 - Annual Reviews - [Twitter](https://twitter.com/threddyrex/status/1259986539796328448?s=20) 
