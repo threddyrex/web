@@ -2,8 +2,14 @@
 
 Here's the big list of comics.
 
+## 2018
+
 1. 2/19/2018 – I’m Freddy – [Twitter](https://twitter.com/threddyrex/status/965620244457779201)
 2. 9/01/2018 – Tented – [Twitter](https://twitter.com/ThreddyRex/status/1035986359800889344)
+
+
+## 2019
+
 3. 1/22/2019 – Make It Rain – [Twitter](https://twitter.com/ThreddyRex/status/1087782553413595137)
 4. 1/23/2019 – I Don’t Recognize Myself – [Twitter](https://twitter.com/ThreddyRex/status/1088146593281261568)
 5. 1/24/2019 – Freddy’s Interview Begins – [Twitter](https://twitter.com/ThreddyRex/status/1088508963778265088)
@@ -113,6 +119,10 @@ Here's the big list of comics.
 109. 12/9/2019 - Mondays - [Twitter](https://twitter.com/threddyrex/status/1204104264953393152)
 110. 12/10/2019 - In the bin - [Twitter](https://twitter.com/threddyrex/status/1204640490651439105?s=20)
 111. 12/24/2019 - Xmas is tomorrow - [Twitter](https://twitter.com/threddyrex/status/1209568869553074176?s=20)
+
+
+## 2020
+
 112. 1/6/2020 - Forgot my password - [Twitter](https://twitter.com/threddyrex/status/1214259213213433856?s=20)
 113. 1/8/2020 - Heating system - [Twitter](https://twitter.com/threddyrex/status/1215084781609709568?s=20)
 114. 1/21/2020 - Goals - [Twitter](https://twitter.com/threddyrex/status/1219650470928506880?s=20)
