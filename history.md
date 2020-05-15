@@ -70,4 +70,5 @@
 
 * 1/6/2020 - Book which contains Ned's tweets along with some Threddy art - [Twitter](https://twitter.com/threddyrex/status/1214411177217773568?s=20)
 * 1/7/2020 - The new pins have arrived - [Twitter](https://twitter.com/threddyrex/status/1214640565247070210?s=20)
+* 5/9/2020 - First comic drawn on NUC - [Twitter](https://twitter.com/threddyrex/status/1259347514932617216?s=20)
 * 5/15/2020 - Giphy Channel Deleted - [Twitter](https://twitter.com/threddyrex/status/1261383779014197249?s=20)
