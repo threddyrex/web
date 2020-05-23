@@ -73,3 +73,4 @@
 * 5/9/2020 - First comic drawn on NUC - [Twitter](https://twitter.com/threddyrex/status/1259347514932617216?s=20)
 * 5/15/2020 - Giphy Channel Deleted - [Twitter](https://twitter.com/threddyrex/status/1261383779014197249?s=20)
 * 5/19/2020 - OG Threddy at MSBuild - [Twitter](https://twitter.com/threddyrex/status/1262802984485842947?s=20)
+* 5/22/2020 - Pixel version of Threddy - [Twitter](https://twitter.com/threddyrex/status/1263987465808838657?s=20)
