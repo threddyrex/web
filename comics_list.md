@@ -139,4 +139,4 @@ Here's the big list of comics.
 124. 5/11/2020 - Annual Reviews - [Twitter](https://twitter.com/threddyrex/status/1259986539796328448?s=20) 
 125. 5/12/2020 - WFH Downsides - [Twitter](https://twitter.com/threddyrex/status/1260291288026341376?s=20)
 126. 5/14/2020 - Make Stuff Up - [Twitter](https://twitter.com/threddyrex/status/1261061826701176832?s=20)
-127. 6/13/2020 - Working on-site - [Twitter](https://twitter.com/threddyrex/status/1271916869021097984?s=20)
+127. 6/13/2020 - Working on-site - [Twitter](https://twitter.com/threddyrex/status/1271926208733704192?s=20)
