@@ -75,3 +75,4 @@
 * 5/19/2020 - OG Threddy at MSBuild - [Twitter](https://twitter.com/threddyrex/status/1262802984485842947?s=20)
 * 5/22/2020 - Pixel version of Threddy - [Twitter](https://twitter.com/threddyrex/status/1263987465808838657?s=20)
 * 5/26/2020 - First pixel gif - [Twitter](https://twitter.com/threddyrex/status/1265386900644220928?s=20)
+* 7/1/2020 - Threddy and Freddy masks - [Twitter](https://twitter.com/threddyrex/status/1278449768478490627?s=20)
