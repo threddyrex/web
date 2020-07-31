@@ -82,3 +82,4 @@
 * 7/10/2020 - Parallax backgrounds - [Twitter](https://twitter.com/threddyrex/status/1281733427419443200?s=20)
 * 7/20/2020 - Pixel Stickers - [Twitter](https://twitter.com/threddyrex/status/1285262488250888192?s=20)
 * 7/23/2020 - Walk with reflection - [Twitter](https://twitter.com/threddyrex/status/1285460164594679808?s=20)
+* 7/31/2020 - Threadzilla quilt by Laura - [Twitter](https://twitter.com/aiddya/status/1289325941425164294?s=20)
