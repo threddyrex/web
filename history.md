@@ -83,3 +83,5 @@
 * 7/20/2020 - Pixel Stickers - [Twitter](https://twitter.com/threddyrex/status/1285262488250888192?s=20)
 * 7/23/2020 - Walk with reflection - [Twitter](https://twitter.com/threddyrex/status/1285460164594679808?s=20)
 * 7/31/2020 - Threadzilla quilt by Laura - [Twitter](https://twitter.com/aiddya/status/1289325941425164294?s=20)
+* 8/3/2020 - First TikTok - [Twitter](https://twitter.com/threddyrex/status/1290437308487999492?s=20)
+* 8/5/2020 - First ceramic dinosaurs on TikTok - [Twitter](https://twitter.com/threddyrex/status/1291060795611045890?s=20)
