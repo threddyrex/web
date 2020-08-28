@@ -86,3 +86,4 @@
 * 8/3/2020 - First TikTok - [Twitter](https://twitter.com/threddyrex/status/1290437308487999492?s=20)
 * 8/5/2020 - First ceramic dinosaurs on TikTok - [Twitter](https://twitter.com/threddyrex/status/1291060795611045890?s=20)
 * 8/17/2020 - 3rd Birthday! - [Twitter](https://twitter.com/threddyrex/status/1295413039148097536?s=20)
+* 8/28/2020 - Promoted to Principal SWE - [Twitter](https://twitter.com/threddyrex/status/1298728555627466752?s=20)
