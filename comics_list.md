@@ -143,3 +143,4 @@ Here's the big list of comics.
 128. 7/27/2020 - Unpainted ceramic dinosaurs - [Twitter](https://twitter.com/threddyrex/status/1287883820918702080?s=20)
 129. 7/29/2020 - Master chief - [Twitter](https://twitter.com/threddyrex/status/1288601977580969984?s=20)
 130. 7/30/2020 - Hackathons are productive - [Twitter](https://twitter.com/threddyrex/status/1288880107319201792?s=20)
+131. 10/4/2020 - I heard there would be bacon - [Twitter](https://twitter.com/threddyrex/status/1312835990449393664?s=20)
