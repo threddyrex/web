@@ -144,3 +144,4 @@ Here's the big list of comics.
 129. 7/29/2020 - Master chief - [Twitter](https://twitter.com/threddyrex/status/1288601977580969984?s=20)
 130. 7/30/2020 - Hackathons are productive - [Twitter](https://twitter.com/threddyrex/status/1288880107319201792?s=20)
 131. 10/4/2020 - I heard there would be bacon - [Twitter](https://twitter.com/threddyrex/status/1312835990449393664?s=20)
+132. 10/6/2020 - Blepster demo in 5 minutes - [Twitter](https://twitter.com/threddyrex/status/1313566190350946304?s=20)
