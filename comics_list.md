@@ -145,3 +145,4 @@ Here's the big list of comics.
 130. 7/30/2020 - Hackathons are productive - [Twitter](https://twitter.com/threddyrex/status/1288880107319201792?s=20)
 131. 10/4/2020 - I heard there would be bacon - [Twitter](https://twitter.com/threddyrex/status/1312835990449393664?s=20)
 132. 10/6/2020 - Blepster demo in 5 minutes - [Twitter](https://twitter.com/threddyrex/status/1313566190350946304?s=20)
+133. 10/22/2020 - Meeting burnout - [Twitter](https://twitter.com/threddyrex/status/1319436441441595393?s=20)
