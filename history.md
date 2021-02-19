@@ -52,6 +52,7 @@
 * 9/20/2019 - Shanghai Disneyland w/ Goofy - [Twitter](https://twitter.com/FreddyRaccoon/status/1175288946583953408?s=20)
 * 9/21/2019 - Shanghai Disneyland hotel view - [Twitter](https://twitter.com/FreddyRaccoon/status/1175608929100808192?s=20)
 * 9/21/2019 - Shanghai Disneyland castle - [Twitter](https://twitter.com/FreddyRaccoon/status/1175652842821931009?s=20)
+* 10/8/2019 - Overheard at Microsoft, actual deliverables - [Twitter](https://twitter.com/threddyrex/status/1181696294147854336)
 * 10/10/2019 - Jargon jar - [Twitter](https://twitter.com/threddyrex/status/1182461643554377729?s=20)
 * 10/15/2019 - Burke museum opens - [Twitter](https://twitter.com/threddyrex/status/1184214507851112448?s=20)
 * 11/6/2019 - MSIgnite photo before talk - [Twitter](https://twitter.com/threddyrex/status/1192135766257872897?s=20)
