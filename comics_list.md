@@ -148,3 +148,7 @@ Here's the big list of comics.
 133. 10/22/2020 - Meeting burnout - [Twitter](https://twitter.com/threddyrex/status/1319436441441595393?s=20)
 134. 10/23/2020 - Halloween decorations - [Twitter](https://twitter.com/threddyrex/status/1319718220874432512?s=20)
 135. 10/24/2020 - Strict lockdown - [Twitter](https://twitter.com/threddyrex/status/1320062007924588544?s=20)
+
+## 2021
+
+136. 3/3/2021 - Planning OKRs - [Twitter](https://twitter.com/threddyrex/status/1367272335066103820?s=20)
