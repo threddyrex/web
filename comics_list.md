@@ -152,3 +152,4 @@ Here's the big list of comics.
 ## 2021
 
 136. 3/3/2021 - Planning OKRs - [Twitter](https://twitter.com/threddyrex/status/1367272335066103820?s=20)
+137. 3/6/2021 - I need to start exercising - [Twitter](https://twitter.com/threddyrex/status/1368301778379313152?s=20)
